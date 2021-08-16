@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Arthur-Furukawa
+- 👀 I’m interested in Programming and Engineering
+- 🌱 I’m currently learning Electrical Engineering and Java (by myself)
+- 💞️ I’m looking to collaborate on some starting projects to train and learn
+- 📫 How to reach me you can reach me on Facebook: Arthur Furukawa || LinkedIn: Arthur Ryuiti Sato Furukawa 
